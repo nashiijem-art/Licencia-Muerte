@@ -4,3 +4,4 @@ utiliza la ciencia; como herramienta de utilidad para la sociedad, respetando el
 todas las personas que maldicen no les gusta la riqueza (solo los pobres maldicen) los ricos son aquellos que aprecian la Sabiduría y la inteligencia, más toman el consejo; lo aprecian más que el oro y la plata. y se hacen ricos con su conocimiento 
 Utilizo el Espíritu de Muerte que es Jesús vestido de Negro; el trae maldición ó bendición. El espíritu de muerte es la Sangre pisoteada y negra de Jesús.
 Sirve para protección del Ego, Envidioso y vanaglorioso... de mi propio proyecto
+mis empresas tendrá esta Licencia-muerte en https://github.com/nashiijem-art 
