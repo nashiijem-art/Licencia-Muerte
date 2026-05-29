@@ -5,3 +5,7 @@ todas las personas que maldicen no les gusta la riqueza (solo los pobres maldice
 Utilizo el Espíritu de Muerte que es Jesús vestido de Negro; el trae maldición ó bendición. El espíritu de muerte es la Sangre pisoteada y negra de Jesús.
 Sirve para protección del Ego, Envidioso y vanaglorioso... de mi propio proyecto
 mis empresas tendrá esta Licencia-muerte en https://github.com/nashiijem-art 
+# Angel
+Sistema operativo angel; con números septimal, con simbología única de 7 colores primarios. Procesador Imatalix G1, don de ciencia, don de Sabiduría, don de inteligencia; más mi ADN-14664
+https://github.com/nashiijem-art/SeptimalDigic agregar
+que es https://sistema-operativo-angel.com y agregar a mi perfil
